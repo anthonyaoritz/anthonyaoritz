@@ -23,6 +23,6 @@ I'm a Web3 developer, full-stack engineer, and AI/ML enthusiast with 12+ years o
 📫 **Contact Me:**  
 [anthonyaoritz@gmail.com](mailto:anthonyaoritz@gmail.com)  
 [LinkedIn](https://linkedin.com/in/anthony-a-oritz-648a75365)  
-[Twitter](https://x.com/aaoritz) *(if you make one)*
+[Twitter](https://x.com/aaoritz)
 
 ---
